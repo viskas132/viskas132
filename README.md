@@ -1,0 +1,3 @@
+- 👋 Hi, I'm @viskas132
+- 👀 I'm interested in the crypt
+- 💞️ I'm looking to collaborate on with interesting companies
